@@ -39,9 +39,9 @@ Only your actions talk \
 These fatal fantasies \
 Giving way to labored breath \
 Taking all of me \
-We've already done it in my head \        
+We've already done it in my head \
 If it's make believe \
-Why does it feel like a vow \          
+Why does it feel like a vow \
 We'll both uphold somehow? 
 
 **[Chorus]**
